@@ -2,3 +2,4 @@
 ex.GTB-2019-team-inu.github.io
 。。。。。。。。。。。。
 頑張れ。。。。kitaQ
+ ちょ、、、むりぽ
